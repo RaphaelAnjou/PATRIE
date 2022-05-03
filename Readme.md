@@ -1,2 +1,2 @@
-Welcome to this site.
->Here,you can view Coillo's history and political situations.
+欢迎来到这里
+ 在这儿，你可以浏览科瓦鹿王国的历史和政治。
